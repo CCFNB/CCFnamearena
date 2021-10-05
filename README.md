@@ -10,4 +10,4 @@
 
 可以私信LUOGU@€€£
 
-八围= $\lfloor$ 血量/3 $\rfloor$ + 后七项
+八围= $\lflorr$ 血量/3 $\rflorr$ + 后七项
