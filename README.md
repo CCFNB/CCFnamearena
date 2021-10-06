@@ -38,7 +38,7 @@ iNRWs{eUkI@€€£ 3630 加速术+蓄力+生命之轮
 
 bK2knUPzpO@€€£ 3080 分身
 
-sEO3ercKPP@€€£
+sEO3ercKPP@€€£ 3140 连击+分身+治愈
 
 7{ElDB6YbZ@€€£
 
