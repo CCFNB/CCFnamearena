@@ -22,18 +22,18 @@ OvoDwyB2wb@€€￡
 
 €€£队：
 
-6mjT8v1lhU@€€£
+2L}48xonjF@€€£ 3910 分身
 
-rZWQYtQfnX@€€£
+CCF2394@€€£ 3860 瘟疫
 
-bK2knUPzpO@€€£
+rZWQYtQfnX@€€£ 3650 分身+瘟疫
 
-2L}48xonjF@€€£
+owjvd7uwt6@€€£ 3640 狂暴术+分身
 
-owjvd7uwt6@€€£
+iNRWs{eUkI@€€£ 3630 加速术+蓄力+生命之轮
 
-iNRWs{eUkI@€€£
+CCF5144@€€£ 3630 瘟疫+治愈+护身符
 
-CCF2394@€€£
+6mjT8v1lhU@€€£ 3550 会心一击
 
-CCF5144@€€£
+bK2knUPzpO@€€£ 3080 分身
