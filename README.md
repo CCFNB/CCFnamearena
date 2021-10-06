@@ -44,4 +44,6 @@ iNRWs{eUkI@€€£ 3315 加速术+蓄力+生命之轮
 
 bK2knUPzpO@€€£ 3162 分身
 
+Ep1Pz3VgXf@€€£ 3081 会心一击
+
 sEO3ercKPP@€€£ 3076 连击+分身+治愈
