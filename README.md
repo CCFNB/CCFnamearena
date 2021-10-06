@@ -24,6 +24,8 @@ OvoDwyB2wb@€€￡
 
 7{ElDB6YbZ@€€£ 3958 雷击+连击
 
+vf6dIQeBId@€€£ 3936连击+生命之轮+护身符
+
 2L}48xonjF@€€£ 3851 分身
 
 bMglFneKGa@€€£ 3830 隐匿+诅咒
@@ -39,6 +41,8 @@ rZWQYtQfnX@€€£ 3463 分身+瘟疫
 owjvd7uwt6@€€£ 3429 狂暴术+分身
 
 h5jEd2sBeu@€€£ 3386 投毒+血祭
+
+4UtpWdlSHu@€€£ 3374 狂暴术+连击
 
 iNRWs{eUkI@€€£ 3315 加速术+蓄力+生命之轮
 
